@@ -1,0 +1,2 @@
+# salinas
+gambar
